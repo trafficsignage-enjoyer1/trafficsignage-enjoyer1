@@ -1,4 +1,4 @@
-## yo, I'm prob offtab exept 
+## yo, I'm prob offtab
 ![tetoteteto](https://github.com/user-attachments/assets/24acbcff-4384-4ba0-a8f4-31d143ac581b)
 
 I'm the n1 Sarah from regretevator kinner btw.
