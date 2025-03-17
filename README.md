@@ -5,6 +5,8 @@ I'm the n1 Sarah from regretevator kinner btw.
 
 "what's your fav food?" cigarette butts, dead cockroach, p0rn0ghr4phy, meth, used c0nd0m, broken glass and uncle all mixed up!! /ref
 
+![48dal8](https://github.com/user-attachments/assets/40ad4fb1-0632-437a-84db-76a66540234c)
+
 "I look for a picture of you
 
 To keep in my pocket
