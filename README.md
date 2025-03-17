@@ -4,7 +4,7 @@
 
 I'm the n1 Sarah from regretevator kinner btw.
 
-Lacey is relatable!! /hj
+"what's your fav food?" cigarette butts, dead cockroach, p0rn0ghr4phy, meth, used c0nd0m, broken glass and uncle all mixed up!! /ref
 <!--
 **trafficsignage-enjoyer1/trafficsignage-enjoyer1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
