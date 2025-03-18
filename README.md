@@ -14,6 +14,8 @@ To keep in my pocket
 But I can't seem to find one
 
 Where you look how I remember."
+
+icl u pmo n ts pmo sm ngl r u fr rn b fr I h8 bein diff idek anm mn js I h8 ts y r u so b so fr w me rn cz lol oms icl ts pmo sm n sb rn ngl r u srsly
 <!--
 **trafficsignage-enjoyer1/trafficsignage-enjoyer1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
