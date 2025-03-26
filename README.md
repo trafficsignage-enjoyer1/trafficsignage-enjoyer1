@@ -1,6 +1,8 @@
 ## yo, I'm prob offtab
 18:37[playing dw] whyisastrosgyatsobig... 💔
+ 
  "This is like going for a casual Saturday walk, where you unexpectedly slip and fall head first into a batch of cocaine with a tiny bit of speed, and chaos ensues."
+
 ![tetoteteto](https://github.com/user-attachments/assets/24acbcff-4384-4ba0-a8f4-31d143ac581b)
 
 I'm the n1 Sarah from regretevator kinner btw.
