@@ -21,3 +21,7 @@
 
 
 uhhh btw if you vent to me, don't. Because idk how to comfort people and I will not try, I normally just panic and try to shift the convo to literally any other subject or js walk away lolzies
+
+
+
+fun fact the only reason i started drawing was out of spite bcz my kindergarden teachers said I sucked @ drawing... 👅
